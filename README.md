@@ -1,3 +1,3 @@
-![skull](https://cloud.githubusercontent.com/assets/65057/4110795/1c99b43a-31f8-11e4-964e-c31bf22496c8.png)
+![skull](https://cloud.githubusercontent.com/assets/65057/5564331/a1e9688a-8eb7-11e4-8970-9745ae0331e4.png)
 
 [http://:skull:.jdenn.es](http://💀.jdenn.es)
